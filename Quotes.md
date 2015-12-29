@@ -16,3 +16,7 @@ Quotes I find some value in
 "Pain or damage don't end the world. Or despair or fucking beatings. The world ends when you're dead. Until then, you got more punishment in store. Stand it like a man... and give some back." Al Swearengen, Deadwood  
 
 ---
+
+"Regrets are pointless.You've already done it. You've lived your life. No point wishing you could change" - Lemmy Kilmister
+
+---
