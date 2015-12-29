@@ -11,4 +11,7 @@ As of December 2015 my policy is this:
 4. Travel friendly (light, compact, packable)
 5. Multi season friendly (layers vs single purpose)
 
+I blogged more details on these specifics
+[ http://blog.seanbonner.com/2015/12/28/continuing-thoughts-on-personal-uniforms/ ]
+
 I'll expand on this with specific choices soon.
