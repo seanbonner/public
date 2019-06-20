@@ -3,13 +3,14 @@ I'm an advocate of a personal uniform and originally documented my thoughts on t
 
 Since then my thoughts and the specifics have evolved and I thought it would be good to track those changes here.
 
-As of December 2015 my policy is this:
+As of June 2019 my policy is this:
 
-1. Black only
+1. Black/Dark Grey only
 2. No blatant branding
 3. No impulse buys, research everything ahead of time.
 4. Travel friendly (light, compact, packable)
-5. Multi season friendly (layers vs single purpose)
+5. Outter wear Multi season friendly (layers vs single purpose)
+6. Under wear season sepecific
 
 I blogged more details on these specifics
 [ http://blog.seanbonner.com/2015/12/28/continuing-thoughts-on-personal-uniforms/ ]
